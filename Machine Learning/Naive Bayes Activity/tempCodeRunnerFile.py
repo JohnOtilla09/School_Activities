@@ -1,0 +1,1 @@
+convex, scaly, yellow, yes, almond, free, close, broad, brown, enlarging, club, smooth, smooth, white, white, partial, white, one, pendant, black, scattered, meadows
